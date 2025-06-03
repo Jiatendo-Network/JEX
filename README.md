@@ -1,5 +1,3 @@
-# JEX
-- Quazal Rendez-Vous library for Nintendo Wii U, Nintendo 3DS & Nintendo Switch.
-
-## Credits
-- NintendoClients (Kinnay)
+# JIATENDO IS TRASH AND A VIRUS
+## PLEASE GO TO PRETENDO NETWORK, PRETENDO IS BETTER https://github.com/PretendoNetwork
+## OR GO TO MY OWN PROJECT LINK3DS (JUST FUN PROJECT) https://github.com/Link-3DS
